@@ -1,16 +1,16 @@
-# 青云梯（qingyunti）官网地址
+# qingyunti青云梯官网地址
 
 官网：[qingyunti.cc](https://ivt02.qytaff.cc/register?aff=1Y4z2XZw)
 
 最新地址：[qingyunti.pro](https://ivt02.qytaff.cc/register?aff=1Y4z2XZw)
 
----
+## 青云梯优惠码
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+2026元旦限时优惠活动，全场八折（20% OFF）
 
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+优惠券码：[0080](https://ivt02.qytaff.cc/register?aff=1Y4z2XZw)
 
----
+结算时输入优惠码即可享受折扣。年付小包不参加本次活动。每位用户不限使用次数。优惠券可叠加套餐本身优惠，享受折上折。
 
 ## 青云梯介绍
 
@@ -33,14 +33,6 @@
 > 支持Shdowrocket/Clash/v2rayN/v2rayNG/Surge/Quantumult X/Stash等客户端。
 > 
 > 支持企业级定制线路。
-
-## 青云梯优惠码
-
-双十一限时优惠活动，全场双十一八折（20% OFF）
-
-优惠券码：[10180](https://ivt02.qytaff.cc/register?aff=1Y4z2XZw)
-
-结算时输入优惠码即可享受折扣。年付小包不参加本次活动。每位用户不限使用次数。优惠券可叠加套餐本身优惠，享受折上折。
 
 ## 青云梯价格
 
