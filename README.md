@@ -1,16 +1,18 @@
 # qingyunti青云梯官网地址
 
-官网：[qingyunti.cc](https://ivt02.qytaff.cc/register?aff=1Y4z2XZw)
+官网：[qingyunti.cc](https://a.qytweb01.cc/register?aff=1Y4z2XZw)
 
-最新地址：[qingyunti.pro](https://ivt02.qytaff.cc/register?aff=1Y4z2XZw)
+最新地址：[qingyunti.pro](https://a.qytweb01.cc/register?aff=1Y4z2XZw)
 
 ## 青云梯优惠码
 
-2026元旦限时优惠活动，全场八折（20% OFF）
+2026中秋节限时优惠活动开始：
 
-优惠券码：[0080](https://ivt02.qytaff.cc/register?aff=1Y4z2XZw)
+月付、季度及半年套餐85折专属优惠码：[yunti85](https://a.qytweb01.cc/register?aff=1Y4z2XZw)
 
-结算时输入优惠码即可享受折扣。年付小包不参加本次活动。每位用户不限使用次数。优惠券可叠加套餐本身优惠，享受折上折。
+年付、两年及三年套餐8折专属优惠码：[yunti80](https://a.qytweb01.cc/register?aff=1Y4z2XZw)
+
+结算时输入优惠码即可享受折扣。优惠券可叠加套餐本身优惠，享受折上折。
 
 ## 青云梯介绍
 
